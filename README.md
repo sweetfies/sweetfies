@@ -7,7 +7,7 @@
 
 You can call me ***VEWN*** or ***FEI*** u can also call me ***DUXO***ㅤㅤㅤI go with any pronouns, though I prefer **she/he** a lot more!ㅤㅤㅤ8w7ㅤ+ㅤFREE BOUNDARIES + esp / eng / cn **user**. 惊人的！
 
-**HAPPILY MARRIED WITH**ㅤㅤ[@iguapoduo](https://github.com/iguapoduo) ㅤㅤ **ILYYYY** ㅤ(灬ºωº灬)♡
+**HAPPILY MARRIED WITH**ㅤㅤ[@iguapoduo](https://github.com/BeanieDuo) ㅤㅤ **ILYYYY** ㅤ(灬ºωº灬)♡
 
 C * H encouraged and comfort. w2i if you wanna interact! I will answer as soon as I can!! 
 
