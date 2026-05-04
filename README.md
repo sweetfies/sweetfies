@@ -1,8 +1,7 @@
 <div align="center">
 
 <img src="https://hits.sh/github.com/NarcissisticSwag.svg?style=flat-square&label=devotees%E3%85%A4&extraCount=2307412&color=ffffff&labelColor=000000">
-ㅤㅤㅤ<img src="https://hits.sh/github.com/NarcissisticSwag.svg?style=flat-square&label=mutual%20love%E3%85%A4&extraCount=3690&color=ffffff&labelColor=000000">
-
+ㅤㅤ
 
 **DNI:**
 <img src="https://u.cubeupload.com/Dagasi/Screenshot2026050320.jpg" width="200">
