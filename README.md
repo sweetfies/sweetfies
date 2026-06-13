@@ -1,7 +1,11 @@
 <div align="center">
   
-<img src="https://file.garden/aeWblX8drAn4J6VK/title.png" width="215">ㅤ ㅤ $\color{#F1A0A3}{\text{⑅}}$ㅤㅤ $\color{#E8E3E2}{\text{ ๋࣭ }}$ㅤ $\color{#F8B297}{\text{˖}}$ㅤ
+**successfully stalking my ex-partner account and her disgusting group of cp-liker groomers with daddy and fat issues.**
 
-<img src="https://file.garden/aeWblX8drAn4J6VK/sweety.gif" width="435">
+<img src="https://file.garden/aeWblX8drAn4J6VK/txt6.gif" width="270">
 
-$\color{#F899A6}{\text{݂  ݂۫ ㅤ₊   }}$ $\color{#F5C8A4}{\text{˚}}$ㅤㅤ  $\color{#E8E4CF}{\text{d𝕟𝕚}}$ㅤ  $\color{#FD8EB3}{\text{e𝕩}}$ $\color{#E7D8D8}{\text{.}}$ㅤ $\color{#E7CFBB}{\text{fri𝕖𝕟ds}}$
+<img src="https://file.garden/aeWblX8drAn4J6VK/cal-gabriel-zero-day.gif" width="500">
+
+𝐂al ᵒʳ 𝐗iang! ㅤ14𝐦onths ·ㅤS(ₕₑ) ·ㅤalso ᵃⁿʸㅤ, please respect. **/ref**
+
+𝐘ou can **INT** freely, but if you're one of her friends. Be careful I may add you in the document I'm doing!
