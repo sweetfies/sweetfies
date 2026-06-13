@@ -8,4 +8,4 @@
 
 𝐂al ᵒʳ 𝐗iang! ㅤ14𝐦onths ·ㅤS(ₕₑ) ·ㅤalso ᵃⁿʸㅤ, please respect. **/ref**
 
-𝐘ou can **INT** freely, but if you're one of her friends. Be careful I may add you in the document I'm doing. And I'm not joking bud. Also, **fuck you, Natalan. I'm not respecting your prononouns, you act girly so I'll treat you with She/Her!** 
+𝐘ou can **INT** freely, but if you're one of her friends. Be careful I may add you in the document I'm doing. And I'm not joking bud. Also, **fuck you, Natalan. I'm not respecting your pronouns, you act girly so I'll treat you with She/Her!** 
